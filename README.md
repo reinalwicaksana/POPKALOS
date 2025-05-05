@@ -1,2 +1,0 @@
-# POPKALOS
-Clothing Brand
